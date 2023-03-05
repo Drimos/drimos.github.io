@@ -1,4 +1,4 @@
-![grafica/illustrazione](https://github.com/drimos/drimos.github.io/image.jpg?raw=true)
+![grafica/illustrazione](https://github.com/drimos/drimos.github.io/50_Digitale_2.jpg?raw=true)
 
 [Facebook](https://www.facebook.com/Paperaz)
 
